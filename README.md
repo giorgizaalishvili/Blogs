@@ -1,0 +1,2 @@
+# Blogs
+Gaming / Blogs / Photos
